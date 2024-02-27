@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dashdkash
+- 👀 I’m interested in basketball
+- 🌱 I’m currently learning computer,physicis and mathmatic
+-  I love Stephen Curry.
+- I love palying valorant.
